@@ -1,0 +1,1 @@
+# AppreciateWealth-fruit-ai-assignment
